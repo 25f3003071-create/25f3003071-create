@@ -1,4 +1,4 @@
-# Aadil Farooq — GitHub Profile README
+
 
 <div align="center">
 
